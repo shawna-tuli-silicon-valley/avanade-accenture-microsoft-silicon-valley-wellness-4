@@ -1,1 +1,1 @@
-<img width="634" alt="Pottery Making" src="https://github.com/user-attachments/assets/775c0c70-24d9-47f9-b86f-bf0d90c21d4d" />
+<img width="753" alt="Capture" src="https://github.com/user-attachments/assets/b2f94d44-352d-41fd-b608-d360a95eeb2a" />
